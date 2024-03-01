@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **sun.mansisun@gmail.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/mansi-sun](www.linkedin.com/in/mansi-sun)
+- 📄 Know about my experiences [www.linkedin.com/in/mansi-sun](https://www.linkedin.com/in/mansi-sun)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
